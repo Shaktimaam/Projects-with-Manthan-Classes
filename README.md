@@ -3,5 +3,5 @@ Here, my client owns a coaching center named Manthan Career Classes and a govern
 I'm working there as a Performance marketer and Social Media Handler, there I make Different vacancy posters or templates, and after that post them on social media platforms like Instagram & Facebook
 <br>
 <br>
-after that, I run a Lead generation & awareness campaign using Facebook Ads Manager or Meta ads
-after that, I charge according to the work
+After that, I run a Lead generation & awareness campaign using Facebook Ads Manager or Meta ads
+& after that, I charge according to the work
